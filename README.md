@@ -1,0 +1,2 @@
+# hacking
+Anyone can join.
